@@ -5,6 +5,5 @@
 - 📫 How to reach me 
 MAIL- nayanbadhai12@gmail.com
 
-Linkedin- https://www.linkedin.com/in/nayankumarbadhai/
 
 
