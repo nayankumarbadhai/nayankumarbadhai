@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Web Technologies...
 - 💞️ I’m looking to collaborate on all interesting project...
 - 📫 How to reach me 
-MAIL- nayanbadhai12@gmail.com
+  MAIL- nayanbadhai12@gmail.com
 
 
 
